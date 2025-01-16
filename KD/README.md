@@ -1,2 +1,2 @@
-# Develop by
->  Instagram ([@mhmdfiqriii_](https://instagram.com/mhmdfiqriii_))
+
+BUla Vinaka
